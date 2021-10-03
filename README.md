@@ -1,4 +1,4 @@
-### Hi there, I'm Vedat
+### Hi there, I'm Vedat BAYSAL
 
 - 🔭 I’m currently working as freelancer
 - 🌱 I’m currently learning what I need
